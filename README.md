@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @L3NGUINI
+- I'm studying a vocational study of IT in spain
+- 📫 How to reach me janlengua05@gmail.com
